@@ -6,7 +6,7 @@ About Me
 
 💼 Strong interest in Management, Marketing, and Growth Strategies
 
-🌐 Cybersecurity Engineer and developper
+🌐 Cybersecurity Engineer and Developper
 
 ☁️ Exploring Cloud Computing
 
