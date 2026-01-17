@@ -1,6 +1,7 @@
 ## Hi there 👋
 
 About Me
+
 🎓 Computer science student passionate about technology, marketing, and management
 
 💼 Strong interest in Management, Marketing, and Growth Strategies
